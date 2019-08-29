@@ -1,0 +1,2 @@
+# trannningg
+thực tập sinh
